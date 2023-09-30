@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @thesocialnetworkgg
+- 👀 I’m interested in learning as much as I can about social media and the people that use it.
+- 🌱 I’m currently learning how to build my own following of people who can help me gather information quicker.
+- 📫 You can reach me at my home at www.thesocialnetwork.gg, but please be warned, you need an access pass to meet me!
